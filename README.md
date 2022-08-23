@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MarcelaRosa
-- 👀 I’m interested in  ter um futuro brilhante 
+- 👀 I’m interested in  have a bright future 
 - 🌱 I’m currently  studying TI
 - 💞️ I’m looking to collaborate on classroom
 - 📫 How to reach me send me an SMS
